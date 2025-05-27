@@ -2,10 +2,7 @@
 
 <p align="center"> $${\color{#8867F3} ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚ }$$
 
-<p align="center"> $${\color{#B2F9FF}
-  two 
-      people 
-      share    this    github    you're    warned}$$
+
 
 
 
@@ -15,3 +12,24 @@ We're excited to announce the launch of a brand new Discord server dedicated to 
 
 Whether you're looking to share your experiences, seek advice, discuss identity, explore lore, or simply find a friendly place to belong, our server is system friendly/plural friendly we support all system origins and do not allow discrimination. Come join our growing flock, participate in engaging conversations, and build lasting connections with like-minded individuals from around the globe. We believe in mutual respect and creating an environment where everyone feels valued.
 
+
+Thank you for taking the time to learn about our new Discord server. We're dedicated to fostering a respectful and engaging environment for all avians, wingkins, angelkins, and those on the path of growing wings. We can't wait to connect with you and share in this incredible journey!
+
+<p align="center"> $${\color{#E3FFFE} ˚₊‧꒰ა 𓂋 ໒꒱ ‧₊˚}$$
+
+
+<p align="center"> $${\color{#B2F9FF}
+  server 
+      is 
+      a    wip    suggest    things!}$$
+
+<p align="center"> $${\color{#90a0ff}
+  . . . . . . . . . . . . . . . . . . . . . . . .. . . . .  . .. . . . . ... . . . . .. . . . ..  . . .  .}$$
+
+  <p align="center"> $${\color{#8768f2}
+  . . . . . . . . . . . . . . . . . . . . . . . .. . . . .  . .. . . . . ... . . . . .. . . . ..  . . .  .}$$
+
+  <p align="center"> $${\color{#491bde}
+  . . . . . . . . . . . . . . . . . . . . . . . .. . . . .  . .. . . . . ... . . . . .. . . . ..  . . .  .}$$
+
+https://orphicashes.crd.co/#aves
