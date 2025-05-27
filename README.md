@@ -20,6 +20,10 @@ Whether you're looking to share your experiences, seek advice, discuss identity,
 
 Thank you for taking the time to learn about our new Discord server. We're dedicated to fostering a respectful and engaging environment for all avians, wingkins, angelkins, and those on the path of growing wings. We can't wait to connect with you and share in this incredible journey!
 
+<div align="center">
+  
+ ![bioplankton](https://komarev.com/ghpvc/?username=WingedHumanity&abbreviated=true&label=Aviae&color=491bde)
+
 <p align="center"> $${\color{#E3FFFE} ˚₊‧꒰ა 𓂋 ໒꒱ ‧₊˚}$$
 
 
