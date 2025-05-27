@@ -5,4 +5,4 @@
 <p align="center"> $${\color{#B2F9FF}
   two 
       people 
-      share    this    github.    you're    warned.}$$
+      share    this    github    you're    warned}$$
