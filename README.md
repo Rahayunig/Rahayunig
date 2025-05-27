@@ -32,4 +32,13 @@ Thank you for taking the time to learn about our new Discord server. We're dedic
   <p align="center"> $${\color{#491bde}
   . . . . . . . . . . . . . . . . . . . . . . . .. . . . .  . .. . . . . ... . . . . .. . . . ..  . . .  .}$$
 
-https://orphicashes.crd.co/#aves
+<div align="center">
+
+  [ᴏʀᴘʜɪᴄ ᴀꜱʜᴇꜱ ৡ･*˚⁺‧͙](https://orphicashes.crd.co/#aves)
+
+  Orphic Ashes is a group founded on the middle ground - Characterized by the Phoenix, Orphic Ashes is founded on beliefs of balance, prosperity, and wisdom. We approach nonhumanism not via both extremes in the community (genetics vs subliminal debate), but by the middle ground. Naturally, we do not entertain fakes, but we will not discount other's experiences just because they clash with our own.
+
+<p align="center"> $${\color{#B2F9FF}
+  not 
+      our 
+      words}$$
