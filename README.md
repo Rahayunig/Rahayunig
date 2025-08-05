@@ -9,7 +9,7 @@
  
 [Atabook](https://ssc.atabook.org/)
 
-
+[Pfp credits](https://www.youtube.com/@Rahayunig)
 
 wip hahaha....... looks aroud nervously ✧˚ ༘ ⋆｡˚ </div>
 
