@@ -5,6 +5,9 @@
 <div align="center"> ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
 
 
+[Front](https://pluralkit.xyz/f/gkrvpo)
+ 
+[Atabook](https://ssc.atabook.org/)
 
 
 
@@ -32,3 +35,9 @@ wip hahaha....... looks aroud nervously ✧˚ ༘ ⋆｡˚ </div>
 
   <p align="center"> $${\color{#491bde}
   . . . . . . . . . . . . . . . . . . . . . . . .. . . . .  . .. . . . . ... . . . . .. . . . ..  . . .  .}$$
+
+
+<div align="center">
+  
+  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31t6iahnmjtxuosnnwfe3dhwkcsa&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&bar_color=00ffff)](https://github.com/kittinan/spotify-github-profile) </div>
+
