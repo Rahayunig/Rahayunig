@@ -7,7 +7,7 @@
 
 [Front](https://pluralkit.xyz/f/gkrvpo)
  
-[Atabook](https://ssc.atabook.org/)
+[Atabook](https://rahayunig.atabook.org/)
 
 [Pfp credits](https://www.youtube.com/@Rahayunig)
 
