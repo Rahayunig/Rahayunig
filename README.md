@@ -5,11 +5,7 @@
 <div align="center"> ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
 
 
-[Front](https://pluralkit.xyz/f/gkrvpo)
- 
-[Atabook](https://rahayunig.atabook.org/)
-
-[Pfp credits](https://www.youtube.com/@Rahayunig)
+[Front](https://pluralkit.xyz/f/gkrvpo) // [Atabook](https://rahayunig.atabook.org/) // [Pfp credits](https://www.youtube.com/@Rahayunig)
 
 wip hahaha....... looks aroud nervously ✧˚ ༘ ⋆｡˚ </div>
 
