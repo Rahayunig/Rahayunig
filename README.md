@@ -11,7 +11,7 @@
 <img width="700" height="500" alt="inbound8488286953554396292" src="https://github.com/user-attachments/assets/685475a9-8928-45ef-8eb4-f9b92b2810ac" />
 <img width="1000" height="150" alt="inbound7352681567966628619" src="https://github.com/user-attachments/assets/a85818ac-0901-4231-ae3c-eba8eefd1bf9"/>
 
-<a href="https://rahayunig.atabook.org/" target="_blank"><img width="132" src="https://github.com/user-attachments/assets/fa0bbe4b-4370-48f5-9961-f86e578ea51d" alt="Atabook"></a> <a href="hhttps://rentry.co/mhhak8xh" target="_blank"><img width="132" src="https://github.com/user-attachments/assets/7f8045e4-4247-4ddb-9c6a-7d90a26cef9a" alt="Rentry"></a><a href="https://pluralkit.xyz/f/gkrvpo" target="_blank"><img width="132" src="https://github.com/user-attachments/assets/1d556275-9bba-49ea-85db-2757b3c45e53" alt="Pluralkit"></a>
+<a href="https://rahayunig.atabook.org/" target="_blank"><img width="132" src="https://github.com/user-attachments/assets/fa0bbe4b-4370-48f5-9961-f86e578ea51d" alt="Atabook"></a> <a href="https://rentry.co/mhhak8xh" target="_blank"><img width="132" src="https://github.com/user-attachments/assets/7f8045e4-4247-4ddb-9c6a-7d90a26cef9a" alt="Rentry"></a><a href="https://pluralkit.xyz/f/gkrvpo" target="_blank"><img width="132" src="https://github.com/user-attachments/assets/1d556275-9bba-49ea-85db-2757b3c45e53" alt="Pluralkit"></a>
 
 <p align="center">
   <img src="https://spotify-github-profile.kittinanx.com/api/view.svg?uid=31t6iahnmjtxuosnnwfe3dhwkcsa&redirect=true][https://spotify-github-profile.kittinanx.com/api/view.svg?uid=31t6iahnmjtxuosnnwfe3dhwkcsa&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&bar_color=ff00c8&bar_color_cover=false" 
