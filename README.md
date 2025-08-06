@@ -38,7 +38,7 @@
 
 𝙂𝙊 𝙁𝙊𝙇𝙇𝙊𝙒 𝙊𝙐𝙍 𝘾𝙊𝙇𝙇𝙀𝘾𝙏𝙄𝙑𝙀 𝘼𝘾𝘾𝙊𝙐𝙉𝙏 𝘼𝙉𝘿 𝘿𝙍𝘼𝙂𝙊𝙉𝙎 𝘼𝘾𝘾𝙊𝙐𝙉𝙏
 
-<a href="https://github.com/LuminescentOceansSys" target="_blank"><img width="132" src="https://github.com/user-attachments/assets/791d27ae-166e-4b21-8aac-42e5aaf7e8ea" alt="Dragon"><a href="https:https://github.com/BernedettesKey" target="_blank"><img width="132" src="https://github.com/user-attachments/assets/a3ed4e8b-397f-4515-b5a5-75a55bee16eb" alt="Dragon">
+<a href="https://github.com/LuminescentOceansSys" target="_blank"><img width="132" src="https://github.com/user-attachments/assets/791d27ae-166e-4b21-8aac-42e5aaf7e8ea" alt="Dragon"><a href="https://github.com/BernedettesKey" target="_blank"><img width="132" src="https://github.com/user-attachments/assets/a3ed4e8b-397f-4515-b5a5-75a55bee16eb" alt="Dragon">
 
 <img src="https://64.media.tumblr.com/c678a449efadbc444dbd8726ae9e99fc/008259af8f9c76ed-e5/s400x600/c5ac6479ee6d3bdf9f6d4e94efab4cd769a45c49.pnj" 
      width="1000" 
