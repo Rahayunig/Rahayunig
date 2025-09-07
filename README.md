@@ -25,6 +25,8 @@
 # ˑ౨ৎ　︶︶　
 
 ### ${{\color{#ff0000}{\texttt{𝙃𝙖𝙧𝙫𝙚𝙮}}}}$, ${{\color{#e100ff}{\texttt{𝘽𝙚𝙧𝙣𝙚𝙙𝙚𝙩𝙩𝙚}}}}$, ${{\color{#ffe100}{\texttt{𝙅𝙚𝙨𝙨𝙚}}}}$, 𝙤𝙧 ${{\color{#43ff00}{\texttt{𝘼𝙘𝙚}}}}$
+(Ace or Harvey pref)
+
 <img src="https://64.media.tumblr.com/058c67d65c6bae75368f77f5e15caff6/af50dc9a96827644-b4/s75x75_c1/c816cb6adf09bc72e664515ad763a7f7e73c7acb.gifv" width="40" 
      height="500" />
 
